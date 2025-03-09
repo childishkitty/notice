@@ -1,4 +1,4 @@
-# notice
+# click this to read notice
 
 pls interact with caution! might take things seriously.
 and my communication/understanding is bad. VERY bad.
